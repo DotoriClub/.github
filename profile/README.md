@@ -1,4 +1,4 @@
-## Hi there 👋
+## Dotori Study Club 📚🌲
 
 <!--
 
